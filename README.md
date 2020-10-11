@@ -11,6 +11,6 @@ In my old griefs, and with my childhood's faith.
 I love thee with a love I seemed to lose
 With my lost saints. I love thee with the breath,
 Smiles, tears, of all my life; and, if God choose,
-I shall but love thee better after death.
+I shall but love thee better after death..
 My heart will love thee even at night,
 And will carry our memories in the next life.
