@@ -13,4 +13,4 @@ With my lost saints. I love thee with the breath,
 Smiles, tears, of all my life; and, if God choose,
 I shall but love thee better after death..
 My heart will love thee even at night,
-And will carry our memories in the next life.
+And will carry our memories to the next life.
